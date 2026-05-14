@@ -15,4 +15,6 @@ That's everything i can remember in a spam of 10 seconds!
 
 ## Check my github if i do smth good! 
 (you can check like once in a few months honestly you not gonna miss something :/ )
-
+# That's all folks!
+my discord: bsod_waxa
+tg: Sodina
